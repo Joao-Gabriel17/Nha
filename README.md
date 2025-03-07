@@ -3,3 +3,5 @@
 Aprendendo coisas na aula de sexta (faculdade)
 
 - "Se eu fosse um macaco...", jonzins 2020.
+
+- Eh, cpa que sim.
